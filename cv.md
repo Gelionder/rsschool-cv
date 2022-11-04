@@ -6,3 +6,4 @@ glebgleb851@gmail.com
 -
 Среднее специальное "Автомеханик"
 Крайне мала.
+https://Gelionder.github.io/rsschool-cv/cv
